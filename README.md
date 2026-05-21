@@ -1,7 +1,5 @@
 # Varun Verma - Resume
 
-![Profile Photo](profile.jpg)
-
 ## Objective
 Motivated and dedicated individual seeking an opportunity to start my career and contribute to the success of an organization through hard work and a willingness to learn.
 
