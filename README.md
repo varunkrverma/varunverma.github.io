@@ -1,4 +1,4 @@
-# Varun Verma - Resume
+# Varun Verma 
 
 ## Objective
 Motivated and dedicated individual seeking an opportunity to start my career and contribute to the success of an organization through hard work and a willingness to learn.
